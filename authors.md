@@ -1,0 +1,7 @@
+- Adrien Wehrung (@BusyAnt)
+- Alexandre Farnier (@yoruhi)
+- Elias Lorimy (@Hverdung)
+- Jérôme Charreyre (@Fidilare)
+- Julien Revel (@doubi125)
+- Quentin Seiwert (@saliwan)
+- GizL
